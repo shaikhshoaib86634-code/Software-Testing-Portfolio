@@ -19,5 +19,5 @@
 - SQL Practice
 
 ### Contact
-LinkedIn:
-Email:
+LinkedIn: www.linkedin.com/in/mohammad-shoaib-shaikh-2751a3222
+Email: shaikhshoaib86634@gmail.com 
